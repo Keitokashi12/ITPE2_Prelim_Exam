@@ -1,5 +1,1 @@
-This is your prelim laboratory exam.
-
-Use everything you learned (if there is) in solving this repository.
-
-Goodluck!
+Yow! My name is Joshua Salasayo 3rd year college and I'm studying at Wesleyan University-Philippines with taking course Bachelor of Science in Information Technology. My hobby is to playing games and also being content creator of mobile legends. 
